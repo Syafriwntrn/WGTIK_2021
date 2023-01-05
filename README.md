@@ -1,2 +1,2 @@
 
-syafriwntrn.github.io
+https://syafriwntrn.github.io
